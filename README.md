@@ -1,1 +1,1 @@
-# pozihookup-legal
+# varsity lovestyle-legal
